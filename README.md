@@ -2,18 +2,19 @@
   
 <image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="10000"/>
 
-me and my boyfrined yay
 
-# ⋆.ೃ࿔*:･⋆.ೃ࿔*:･⋆.ೃ࿔*:･⋆.ೃ࿔*:･
+me and blocky yay
+
+
 
 <details>
 
-<summary> $${\color{#eebc65} about \space me \space !}$$ </summary>
+<summary> $${\color{#eebc65} about \space me \space }$$ </summary>
 
  ;; yes i AM woody irl if you see a walking balsa plywood that IS me ok? ok.
 
 
- ;; asean person (eng/id user)
+ ;; he/any
 
  ;; if you know me, **NEVER** call me my real name. ever.
 
@@ -23,8 +24,9 @@ me and my boyfrined yay
 
  ;; i have deppression :((
 
- ;; VERY supportive <3
+ ;; THE most WEAKEST in my team bro
 
  ;; ace + pan O_o
 
+ ;; insecure
   
