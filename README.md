@@ -3,7 +3,7 @@
 <image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="10000"/>
 
 
-me and blocky yay
+me and myawesome boyfriend yay
 
 
 
