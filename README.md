@@ -11,7 +11,7 @@ me and myawesome boyfriend yay
 
 <details>
 
-<summary> $${\color{#eebc65} about \space me \space }$$ </summary>
+<summary> $${\color{#eebc65} my \space infooo \space }$$ </summary>
 
  ;; yes i AM woody irl if you see a walking balsa plywood that IS me ok? ok.
 
