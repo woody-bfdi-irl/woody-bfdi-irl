@@ -5,6 +5,8 @@
 
 me and myawesome boyfriend yay/hj um (livelaughlove woodblock)
 
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=black&left_text=contestants)
+
 
 [my ata ^_^](https://woodywoody.atabook.org/)
 
