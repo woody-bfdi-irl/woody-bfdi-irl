@@ -33,4 +33,7 @@ me and myawesome boyfriend yay/hj um (livelaughlove woodblock)
  ;; insecure
 
  ;; bigender laawl,,
+
+ ;; im not very good with meeting doubles , but that DOES NOT mean i cant learn to tolerate it. just gimme some time lmfao
   
+ ;; dni reality checkers bru.
