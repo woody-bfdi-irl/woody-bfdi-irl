@@ -1,6 +1,6 @@
 <div align=center>
   
-<image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="1000"/>
+<image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="600"/>
 
 
 me and myawesome boyfriend yay/hj um (livelaughlove woodblock)
