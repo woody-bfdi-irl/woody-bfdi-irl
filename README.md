@@ -3,7 +3,7 @@
 <image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="600"/>
 
 
-me and myawesome boyfriend yay/hj um (livelaughlove woodblock)
+me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=black&left_text=contestants)
 
@@ -37,4 +37,4 @@ me and myawesome boyfriend yay/hj um (livelaughlove woodblock)
   
  ;; dni reality checkers bru.
 
- ;; if theres anything going on feel free to dm me on dc! (weepingghost)
+ ;; if theres anything i need to clarify feel free to dm me on dc! (weepingghost)
