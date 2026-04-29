@@ -7,8 +7,9 @@ me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=black&left_text=contestants)
 
+im always working on this github in my freetime
 
-[my ata ^_^](https://woodywoody.atabook.org/)
+[woody ata woohoo](https://woodywoody.atabook.org/)
 
 
 <details>
