@@ -1,11 +1,15 @@
 <div align=center>
   
+<image src="https://files.catbox.moe/al2sa3.gif" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="300"/>
+  
 <image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="600"/>
 
 
 me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=black&left_text=contestants)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=red&right_color=orange&left_text=contestants)
+
+![](https://files.catbox.moe/7rpdfb.png) ![](https://files.catbox.moe/zrjs8b.webp)
 
 im always working on this github in my freetime
 
