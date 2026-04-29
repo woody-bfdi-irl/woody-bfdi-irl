@@ -7,7 +7,7 @@
 
 me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=red&right_color=orange&left_text=contestants)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=yellow&left_text=contestants)
 
 ![](https://files.catbox.moe/7rpdfb.png) ![](https://files.catbox.moe/zrjs8b.webp)
 
