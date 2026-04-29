@@ -1,17 +1,14 @@
 <div align=center>
   
-<image src="https://files.catbox.moe/e2ecf1.gif" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="50"/>
-  
 <image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="600"/>
-
 
 me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=yellow&left_text=contestants)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=#eebc65&left_text=contestants)
 
 ![](https://files.catbox.moe/7rpdfb.png) ![](https://files.catbox.moe/zrjs8b.webp)
 
-im always working on this github in my freetime
+reworking this in my freetime
 
 [woody ata woohoo](https://woodywoody.atabook.org/)
 
