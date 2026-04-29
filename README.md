@@ -1,6 +1,6 @@
 <div align=center>
   
-<image src="https://files.catbox.moe/al2sa3.gif" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="300"/>
+<image src="https://files.catbox.moe/e2ecf1.gif" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="50"/>
   
 <image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="600"/>
 
