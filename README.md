@@ -13,29 +13,28 @@ me and myawesome boyfriend yay/hj um (livelaughlove woodblock)
 
 <details>
 
-<summary> $${\color{#eebc65} my \space infooo \space }$$ </summary>
+<summary> $${\color{#eebc65} just \space me!! \space }$$ </summary>
 
  ;; yes i AM woody irl if you see a walking balsa plywood that IS me ok? ok.
 
-
- ;; he/any
+ ;; he/any im bigender
 
  ;; if you know me, **NEVER** call me my real name. ever.
 
- ;; always paranoid oops.
+ ;; minor
 
  ;; im very oversensitive ^_^"
 
  ;; i have deppression :((
 
- ;; THE most WEAKEST in my team bro
-
  ;; ace + pan O_o
 
  ;; insecure
 
- ;; bigender laawl,,
+ ;; i ship woodleaftacoblock or wtv its called (ily polycules)
 
- ;; im not very good with meeting doubles , but that DOES NOT mean i cant learn to tolerate/warm up to it. just gimme some time lmfao
+ ;; im not very good with meeting doubles , but that DOES NOT mean i cant learn to tolerate/warm up to it. just gimme some goddamn time lmfao
   
  ;; dni reality checkers bru.
+
+ ;; if theres anything going on feel free to dm me on dc! (weepingghost)
