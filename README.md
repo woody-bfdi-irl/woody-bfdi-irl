@@ -39,4 +39,4 @@ reworking this in my freetime
   
  ;; dni reality checkers bru.
 
- ;; if theres anything i need to clarify feel free to dm me on dc! (weepingghost)
+ ;; if theres anything i need to clarify feel free to dm me on dc! (weepingghosst)
