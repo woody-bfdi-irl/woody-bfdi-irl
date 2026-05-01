@@ -6,7 +6,9 @@ me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
 ![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=black&left_text=contestants)
 
-![](https://files.catbox.moe/7rpdfb.png) ![](https://files.catbox.moe/zrjs8b.webp)
+![](https://files.catbox.moe/zrjs8b.webp)
+
+![](https://media.tenor.com/YdoCZc3N9pAAAAAM/bfb-bfdi.gif)
 
 reworking this in my freetime
 
