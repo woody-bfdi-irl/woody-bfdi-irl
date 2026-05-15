@@ -17,28 +17,12 @@ reworking this in my freetime
 
 <details>
 
-<summary> $${\color{#eebc65} just \space me!! \space }$$ </summary>
+<summary> $${\color{#eebc65} boundaries }$$ </summary>
 
- ;; yes i AM woody irl if you see a walking balsa plywood that IS me ok? ok.
+ ;; it will take some time for me to be properly friendly to doubles , so best iwc . still appreciated to interact though !!
 
- ;; he/any im bigender
+ ;; never , EVER call me by my real name if you know me .
 
- ;; if you know me, **NEVER** call me my real name. ever.
+ ;; dni reality checkers .
 
- ;; minor
-
- ;; im very oversensitive ^_^"
-
- ;; i have deppression :((
-
- ;; ace + pan O_o
-
- ;; insecure
-
- ;; i ship woodleaftacoblock or wtv its called (ily polycules)
-
- ;; im not very good with meeting doubles , but that DOES NOT mean i cant learn to tolerate/warm up to it. just gimme some goddamn time lmfao
-  
- ;; dni reality checkers bru.
-
- ;; if theres anything i need to clarify feel free to dm me on dc! (weepingghosst)
+ ;; if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :)
