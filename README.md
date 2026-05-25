@@ -14,10 +14,6 @@ reworking this in my freetime
 
 [woody ata woohoo](https://woodywoody.atabook.org/)
 
-![](https://files.catbox.moe/c6e1p2.jpg)
-
-honorable mention
-
 
 <details>
 
