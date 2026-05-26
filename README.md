@@ -14,7 +14,7 @@ reworking this in my freetime
 
 <details>
 
-<summary> $${\color{#eebc65} boundaries }$$ </summary>
+<summary> ${\color{#eebc65} 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 }$ </summary>
 
  ;; it will take some time for me to be properly friendly to doubles , so best iwc . still appreciated to interact though !!
 
