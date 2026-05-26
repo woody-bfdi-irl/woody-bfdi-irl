@@ -1,10 +1,7 @@
 <div align=center>
   
-<image src="https://files.catbox.moe/dxvx23.webp" data-canonical-src="https://files.catbox.moe/dxvx23.webp" width="1000" height="600"/>
 
-me and myawesome boyfriend yay/hj (livelaughlove woodblock)
-
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=black&left_text=contestants)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=woody-bfdi-irl&left_color=black&right_color=tan&left_text=scaredy+cats)
 
 ![](https://files.catbox.moe/zrjs8b.webp)
 
@@ -12,7 +9,7 @@ me and myawesome boyfriend yay/hj (livelaughlove woodblock)
 
 reworking this in my freetime
 
-[woody ata woohoo](https://woodywoody.atabook.org/)
+[woody ata](https://woodywoody.atabook.org/)
 
 
 <details>
