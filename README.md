@@ -16,10 +16,12 @@ reworking this in my freetime
 
 <summary> ${\color{#eebc65} 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 }$ </summary>
 
- ;; it will take some time for me to be properly friendly to doubles , so best iwc . still appreciated to interact though !!
+ ⸝⸝ it will take some time for me to be properly friendly to doubles , so best iwc . still appreciated to interact though !!
 
- ;; never , EVER call me by my real name if you know me .
+ ⸝⸝ never , EVER call me by my real name if you know me .
 
- ;; dni reality checkers .
+ ⸝⸝ dni reality checkers .
 
- ;; if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :)
+ ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :)
+
+ ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts :)
