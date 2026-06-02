@@ -16,7 +16,7 @@ reworking this in my freetime
 
 <summary> ${\color{#eebc65} 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 }$ </summary>
 
- ⸝⸝ it will take some time for me to be properly friendly to doubles , so best iwc . still appreciated to interact though !!
+ ⸝⸝ iwec doubles . i usually shy away and hide / go nonverb when around them , but its still kinda nice to meet you as a double .
 
  ⸝⸝ never , EVER call me by my real name if you know me .
 
@@ -24,4 +24,4 @@ reworking this in my freetime
 
  ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :)
 
- ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts :)
+ ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts ^q^
