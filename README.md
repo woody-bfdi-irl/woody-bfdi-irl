@@ -18,10 +18,10 @@ reworking this in my freetime
 
  ⸝⸝ iwec doubles . i usually shy away and hide / go nonverb when around them , but its still kinda nice to meet you as a double .
 
- ⸝⸝ never , EVER call me by my real name if you know me .
+ ⸝⸝ if u dont c×h i will be very sad/hj . im usually offtab / afk so best bet is to w2i all the time unless im visibly ontab . :-)
 
  ⸝⸝ dni reality checkers .
 
- ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :)
+ ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :3
 
  ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts ^q^
