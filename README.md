@@ -16,12 +16,14 @@ reworking this in my freetime
 
 <summary> ${\color{#eebc65} 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 }$ </summary>
 
- ⸝⸝ iwec doubles . i usually shy away and hide / go nonverb when around them , but its still kinda nice to meet you as a double .
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ iwec OR dni doubles , i usually get quiet and hide away when meeting one , sorry .
 
- ⸝⸝ if u dont c×h i will be very sad/hj . im usually offtab / afk so best bet is to w2i all the time unless im visibly ontab . :-)
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ im usually offtab / afk so best bet is to w2i all the time unless im visibly ontab . :-)
 
- ⸝⸝ dni reality checkers .
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ dni reality checkers .
 
- ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :3
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :3
 
- ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts ^q^
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts ^q^
+
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ c×h is heavily encouraged ! never fails to make my day btw .
