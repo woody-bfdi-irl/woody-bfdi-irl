@@ -7,7 +7,9 @@
 
 ![](https://media.tenor.com/YdoCZc3N9pAAAAAM/bfb-bfdi.gif)
 
-reworking this in my freetime
+$\texttt{\color{#F3BABE} kin }$⠀ ⠀ ⠀ ⠀/⠀ ⠀ ⠀ $\texttt{\color{#FFD5A5} woody }$
+
+![](https://files.catbox.moe/1pdy0s.gif)
 
 [woody ata](https://woodywoody.atabook.org/)
 
