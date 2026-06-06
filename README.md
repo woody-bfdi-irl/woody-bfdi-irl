@@ -14,7 +14,7 @@ reworking this in my freetime
 
 <details>
 
-<summary> ${\color{#eebc65} 𝘣𝘰𝘶𝘯𝘥𝘢𝘳𝘪𝘦𝘴 }$ </summary>
+<summary> ${\color{#eebc65} 𝐬𝐭𝐮𝐟𝐟 }$ </summary>
 
 ![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ iwec OR dni doubles , i usually get quiet and hide away when meeting one , sorry .
 
