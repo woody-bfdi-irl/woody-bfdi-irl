@@ -16,14 +16,14 @@ reworking this in my freetime
 
 <summary> ${\color{#eebc65} 𝐬𝐭𝐮𝐟𝐟 }$ </summary>
 
-![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ iwec OR dni doubles , i usually get quiet and hide away when meeting one , sorry .
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#FFFADA} iwec OR dni doubles , i usually get quiet and hide away when meeting one , sorry . }$
 
-![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ im usually offtab / afk so best bet is to w2i all the time unless im visibly ontab . :-)
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#FAD977} im usually offtab / afk so best bet is to w2i all the time unless im visibly ontab . :-) }$
 
-![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ dni reality checkers .
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#eebc65} dni reality checkers . }$
 
-![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :3
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#E08B46} if youre in the osc fandom PLEASE interact !! it would be lovely to talk with you :3 }$
 
-![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ please gift me any woody skins !!/nf i LOOVE having gifts ^q^
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#C05827} please gift me any woody skins !!/nf i LOOVE having gifts >w< }$
 
-![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ c×h is heavily encouraged ! never fails to make my day btw .
+![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#A53B18} c×h is heavily encouraged ! never fails to make my day btw . }$
