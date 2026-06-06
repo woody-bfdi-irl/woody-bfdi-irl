@@ -7,7 +7,7 @@
 
 ![](https://media.tenor.com/YdoCZc3N9pAAAAAM/bfb-bfdi.gif)
 
-$\texttt{\color{#F3BABE} kin }$⠀ ⠀ ⠀ ⠀/⠀ ⠀ ⠀ $\texttt{\color{#FFD5A5} woody }$
+⠀ $\texttt{\color{#F3BABE} kin }$⠀ ⠀ ⠀ ⠀/⠀ ⠀ ⠀ $\texttt{\color{#FFD5A5} woody }$
 
 ![](https://files.catbox.moe/1pdy0s.gif)
 
