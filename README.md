@@ -29,3 +29,4 @@
 ![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#C05827} please gift me any woody skins !!/nf i LOOVE having gifts >w< }$
 
 ![](https://files.catbox.moe/ca1emi.gif) ⸝⸝ $\texttt{\color{#A53B18} c×h is heavily encouraged ! never fails to make my day btw . }$
+</details>
