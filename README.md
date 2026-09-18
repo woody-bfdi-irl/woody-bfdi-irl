@@ -11,7 +11,7 @@
 
 ![](https://files.catbox.moe/1pdy0s.gif)
 
-[my ata](https://woodywoody.atabook.org/)⠀ ⠀ ⠀ ⠀ ⠀[my rentry](https://rentry.co/wooody)
+[my ata](https://iknowuraddress.atabook.org/)⠀ ⠀ ⠀ ⠀ ⠀[my rentry](https://fluffle.cc/dearwoody)
 
 
 <details>
